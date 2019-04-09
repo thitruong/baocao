@@ -1,4 +1,9 @@
 # baocao
 ## powerpoint
-	B�i thuy?t tr?nh m?nh s? tr? l?i nh?ng c�u h?i trong file c�u h?i. M?nh chia ph?n c? r?i. M?i ng�?i so?n �t nh?t 5 
-slide powpoint g?i cho m?nh. Ch? nh?t m?nh gom l?i r?i l�m cho ho�n ch?nh. Nh? g?i cho m?nh.
+## [word](https://drive.google.com/drive/u/1/folders/1N8MEEgkbWgdTJa5eVflF3cEea-gMzW5t)
+	Mình soạn bài trong file word rồi đấy. Có chia phần sẵn cả rồi.
+	Mỗi người xem và làm ít nhất 5 slide powerpoit gởi mình nha.
+	Chủ nhật mình gom lại, sửa.
+	Ai muốn thêm gì cũng được.
+	Nhớ nộp nha.
+	
